@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @i-fa123
 - 👀 I’m interested in animals,dance,makeup
 - 🌱 I’m currently learning nursing
-- 💞️ I’m looking to collaborate on music with one of my favorite artists 
+- 💞️ I’m looking to collaborate on new projects that can develop my soft skills 
 - 📫 How to reach me:
 - ines.fakraoui@upsat.tn
 
